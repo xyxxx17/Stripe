@@ -1,4 +1,4 @@
-# Hi 👋, I'm Anna
+# Hi 👋, I'm Richyin
 
 ## Getting ready to create a project of my own
 
